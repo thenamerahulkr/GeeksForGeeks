@@ -1,0 +1,4 @@
+As a computer science student, I am passionate about exploring the latest technological advancements in the field of computer science. My name is Rahul Kumar and I am currently pursuing my Bachelor's degree in Computer Science from VIT Bhopal University.
+I have always been fascinated by the ever-evolving world of technology,
+I am a quick learner and am always willing to take up new challenges. I am also a self-motivated individual who takes initiative and completes tasks in a timely manner.
+In my free time, I enjoy participating in coding competitions and attending technology conferences to keep up with the latest industry trends. I am excited to explore the vast possibilities that the field of computer science has to offer and look forward to contributing to innovative projects in the future.
